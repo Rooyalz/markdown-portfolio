@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+:tada: **I'm really and I say REALLY GOOD at not doing anything of worth** :tada:
